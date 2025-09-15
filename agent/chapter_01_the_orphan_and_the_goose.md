@@ -1,0 +1,109 @@
+# Chapter 1: The Orphan and the Goose
+
+The morning sun had barely begun its slow crawl across the eastern hills when David's day began with a beak in his face. Not just any beak, mind you, but *the* beak—Elder Goose's formidable orange weapon of mass destruction, currently prodding David's cheek with the gentle insistence of a woodpecker seeking a particularly juicy grub.
+
+"Alright, alright, I'm up," David mumbled, batting away the offending appendage with a practiced ease that spoke of countless similar awakenings. He cracked open one bleary eye to see the goose standing on his chest like a feathered monarch surveying his domain, those beady black eyes gleaming with a mixture of smug satisfaction and pressing hunger.
+
+Elder Goose let out a soft, rumbling honk that managed to convey both triumph and subtle impatience, as if to say, *My stomach does not operate on your human schedule, young man! The sun has been up for at least an hour, and my internal clock is quite precise, thank you very much.*
+
+David groaned and rolled out of his small cot, the straw-filled mattress rustling in protest like a chorus of disgruntled mice staging a tiny rebellion. His cottage was a cozy, if slightly dilapidated, affair—a single room that served as kitchen, bedroom, and general living space. A small hearth, cold now in the early morning chill, dominated one wall, while a collection of mismatched furniture huddled together as if for warmth, or perhaps for moral support in the face of Elder Goose's daily pronouncements.
+
+It wasn't much, but it was home. And with Elder Goose as his constant companion, it was never lonely, though occasionally it was rather loud, especially during the goose's more impassioned philosophical debates with himself about the nature of grain distribution and the existential implications of morning dew.
+
+David shuffled over to the small pantry, his bare feet cold on the rough-hewn floorboards that seemed to possess a particular talent for finding every splinter in the room. "You know," he said, scooping a handful of grain into a wooden bowl, "most people are woken by the sun, or a rooster, or perhaps a gentle breeze through an open window. I get a goose with a beak like a battering ram and a personality to match. I'm fairly certain you're plotting world domination, one breakfast at a time, starting with my meager grain supply."
+
+Elder Goose, who had hopped off the bed with a surprisingly agile leap and was now waddling expectantly at David's feet, let out a series of sharp, staccato honks—a feathered commentary on David's culinary efficiency, or lack thereof. David didn't speak Goose, not in the way the Called did, not with the formal, ritualistic pronouncements of the village elders, but after a lifetime together, he was fluent in this particular goose's brand of feathered sarcasm. He knew a demand for extra berries when he heard one, and a subtle hint about the philosophical implications of a particularly plump worm.
+
+"Yes, yes, I know," David said, setting the bowl down with a sigh that was more theatrical than genuinely exasperated. "You're a very important goose with a very important stomach. Heaven forbid I keep you waiting. The fate of the world, and indeed, the quality of my morning, depends entirely on your prompt sustenance. And please, try not to track mud all over the freshly swept floor. It's a losing battle, I know, but a boy can dream."
+
+As Elder Goose attacked his breakfast with gusto—a flurry of feathers and enthusiastic pecks that threatened to send grain flying across the room—David set about his own morning routine. He washed his face in a basin of cold water, the shock of it chasing away the last vestiges of sleep and making him feel vaguely alive, if a little numb. He pulled on a simple tunic and trousers, the fabric worn soft with age, a testament to countless repairs and a distinct lack of fashion sense.
+
+He was a lanky young man, all elbows and knees, with a mop of unruly brown hair that refused to be tamed, preferring to stick out in various directions, much like his own life. In the small, cracked mirror he kept by the door, he saw a face that was ordinary in every way, a face that blended into the background of village life, a face that screamed "harmless orphan," which, he had learned, was often a useful disguise, especially when attempting to avoid particularly aggressive tax collectors.
+
+He sighed, a familiar knot of anxiety tightening in his stomach. The Calling ceremony was only a week away. A week until his entire future was decided, until he would finally know his place in the world, until he would be assigned a destiny by a shimmering portal and a group of very serious elders who seemed to believe that a person's worth could be determined by the type of animal that chose them.
+
+He tried to imagine it, the moment when the magic would surge through him, revealing his true nature. Would he be a Blacksmith, his hands imbued with the strength to shape metal? A Weaver, his fingers nimble and quick, capable of intricate designs? Or maybe, just maybe, something more. Something… unexpected. Like a particularly philosophical badger, or a very witty squirrel, or perhaps, a goose with a penchant for existential dread.
+
+He glanced at Elder Goose, who had finished his grain and was now meticulously preening his feathers with an air of self-satisfied dignity, as if he had just single-handedly solved the world's energy crisis. David's parents, whoever they were, had left him on the steps of the village orphanage with nothing but a basket and a goose. The villagers had taken him in, as was their way, but he had always been an outsider, the boy with no family and no history, a blank slate in a world where lineage was everything.
+
+Elder Goose was his only real connection to his past, a living, breathing, honking mystery, a feathered guardian who had seen him through every scraped knee and every whispered insult, and who had, on more than one occasion, chased away particularly aggressive bullies with a well-aimed honk.
+
+"What do you think, Goose?" David asked, his voice barely a whisper, a private question shared only with his feathered confidant. "What will I be? Will I be a hero? Or just… a very good goose herder? One who specializes in philosophical geese?"
+
+Elder Goose paused his preening and looked at David, his beady black eyes surprisingly intelligent, filled with a wisdom that transcended mere avian intellect. He let out a long, low honk, a sound that was almost gentle, almost reassuring, as if to say, *You are more than you think you are, young man. And your destiny is not for them to decide. Now, about that second helping of grain…*
+
+David smiled. It was as close to reassurance as he was likely to get from the old bird, and it was enough. He knew, deep down, that his path was his own, regardless of what the Solstice Portal had in store.
+
+---
+
+The village of Millbrook was already stirring when David and Elder Goose stepped out into the morning air. The scent of baking bread wafted from the baker's shop, the distant clang of a hammer on steel echoed from the blacksmith's forge, and the faint, lingering aroma of yesterday's gossip hung in the air like a particularly persistent fog. It was a small, bustling community, nestled in a valley carved by the river that gave it its name.
+
+The people of Millbrook were simple folk, their lives governed by the seasons and the Callings that defined them—a rigid, predictable rhythm that left little room for the unexpected, or for orphans with opinionated geese. Every person in the village had their place, their role, their assigned destiny. The farmers tended their fields with their oxen and horses, the weavers worked their looms with their spiders and silkworms, the blacksmiths forged metal with their bears and badgers. It was a system that worked, that provided order and structure, that ensured everyone knew exactly where they belonged.
+
+Everyone except David.
+
+As David and Elder Goose made their way toward the market square, they passed a group of children playing in the street, their laughter echoing through the narrow lanes. One of them, a boy with a shock of red hair and a particularly mischievous grin, pointed at David and whispered to his friends, his words carried on the morning breeze.
+
+David kept his eyes fixed on the ground, his cheeks burning, a familiar knot of shame tightening in his stomach. He was used to the whispers, the pitying glances, the subtle shifts in conversation when he entered a room. He was the orphan, the boy with no name, a blank slate in a world where lineage was everything, a constant reminder of his outsider status, a living, breathing anomaly in a world that demanded conformity.
+
+Elder Goose, however, was not one to let such slights go unanswered. He puffed out his chest, his neck feathers bristling, and let out a honk so loud and so indignant that the children scattered like startled pigeons, their laughter turning to shrieks of terror. David couldn't help but chuckle, a genuine, unburdened sound that escaped his lips. The goose was more than just a pet; he was a protector, a feathered guardian with a temper as fiery as his orange beak, and a surprising talent for intimidating small children.
+
+"Show them, Goose," David murmured, a proud smile touching his lips. "Show them what happens when you mess with a goose and his orphan. They'll learn."
+
+The market square was the heart of the village, a vibrant tapestry of sights, sounds, and smells. Farmers sold their produce, their voices booming with practiced ease. Craftsmen displayed their wares, their hands calloused and strong. Villagers gathered to gossip and trade, their conversations a low hum of speculation and shared secrets, mostly about who was marrying whom, and who had the most impressive Calling.
+
+David navigated the crowd, his eyes scanning for a familiar face, a friendly nod, a moment of quiet connection. He was here on an errand for the village baker, a kindly man whose own Calling, a particularly fluffy and perpetually warm cat, seemed to radiate comfort. The baker sometimes gave him odd jobs in exchange for a few coins, a small act of kindness that meant more than he could ever say, a rare beacon of warmth in a world that often felt cold and indifferent.
+
+He spotted the baker's stall, a cheerful explosion of breads and pastries, their sweet aroma a welcome distraction from the lingering whispers. But his attention was snagged by a flash of color, a vibrant splash of blue in the sea of earthy tones.
+
+It was Ana.
+
+Ana, the mayor's daughter, her laughter ringing out like a silver bell, a melody that cut through the market's cacophony, a sound that made his heart do a little jig. She was surrounded by a group of her friends, her blue dress a stark contrast to the simple homespun of the other villagers, a beacon of elegance in a world of practicality. She was beautiful, with hair the color of spun gold that seemed to catch the sunlight, and eyes that sparkled with a mischievous light, like captured stars, promising a world of adventure and laughter.
+
+David's heart did a little flip-flop in his chest, a frantic flutter that threatened to escape his ribs. He had admired her from afar for years, a silent, secret devotion. He had watched her from the shadows, a ghost in her gilded world, a silent observer of her carefully curated life. But he had never dared to speak to her. She was the daughter of the most powerful man in the village, a girl destined for a great Calling and a brilliant future, a life of privilege and predictability. He was… well, he was just David. The orphan. The boy with the goose. A blank slate in a world that demanded a meticulously crafted lineage, a world that had no place for him.
+
+As if sensing his gaze, Ana turned and their eyes met. For a fleeting moment, the world seemed to stop. The bustling market faded into a blur, the cacophony of voices muted to a distant hum, replaced by the frantic pounding of his own heart. She smiled, a genuine, radiant smile that made David's breath catch in his throat, a smile that promised a world of possibilities, a future he had only dared to dream of.
+
+He felt a blush creep up his neck, a fiery blush that threatened to consume him, and quickly looked away, his heart pounding like a drum, a frantic rhythm of confusion and hope. He was a deer caught in the headlights, a rabbit frozen in the path of a very determined wolf.
+
+Elder Goose, who had been observing this silent exchange with a critical eye, let out a soft, questioning honk, a sound that seemed to convey a mixture of curiosity and mild exasperation, as if to say, *Well, are you going to stand there all day, or are you going to actually talk to the girl? Some of us have places to be, and apples to barter for.*
+
+David delivered his message to the baker, his hands fumbling as he tried to explain the order, his voice a little too high, a little too strained, a testament to his lingering nervousness. The baker, a man whose Calling had blessed him with an abundance of both flour and patience, just chuckled and handed David a warm loaf of bread for his troubles, his eyes twinkling with a knowing amusement.
+
+"Go on, lad. You look like you've seen a ghost. Or perhaps, a very pretty girl. They tend to have that effect."
+
+As David turned to leave, clutching the warm loaf of bread to his chest, its warmth a comforting anchor, he saw Ana again, this time walking toward him, her friends trailing behind her like a colorful entourage, their laughter echoing through the market. His first instinct was to flee, to disappear into the crowd, to melt into the shadows and save himself the embarrassment of whatever was about to happen. But his feet seemed to be rooted to the spot, his body refusing to obey his frantic commands.
+
+"Hello, David," she said, her voice even more beautiful up close, a melody that made his heart sing, a sound that promised a world of possibilities. "I saw you talking to the baker. Are you working for him now? Or are you simply admiring his particularly fluffy cat? I hear it has a rather discerning palate for cream."
+
+"Ana," he managed to squeak, his voice an octave higher than usual, a sound that would have made Elder Goose proud. He cleared his throat and tried again, his voice a little more steady, a little more confident. "Hello. Just an errand. He needed some herbs from the apothecary, and I was on my way there anyway, so I said I would, and he gave me this bread, which is very kind of him, because I don't have much money, you see, being an orphan and all. And the cat is indeed very fluffy. And very discerning." He winced. Why had he said that? Why was he rambling like a fool? Why did his life always feel like a particularly bad comedy, with him as the unwitting protagonist?
+
+But Ana didn't seem to mind. She just laughed, a sound that was both musical and kind, a sound that made the world seem a little brighter, a little less daunting. Her eyes crinkled at the corners, and a genuine smile touched her lips. "That was very good of you," she said, her voice soft, yet firm. "Not everyone would be so willing to help. Especially not for a loaf of bread. Though it does smell rather delicious. And considerably less like existential dread than some of the other things I've encountered today."
+
+David felt a warmth spread through his chest, a feeling he wasn't used to, a feeling that had nothing to do with the warm bread. It was as if she saw him, really saw him, not just the orphan boy everyone else saw, not just the boy with the goose, but David. Just David. And that, for him, was everything. It was a silent acknowledgment, a shared moment of unexpected connection in a world that rarely allowed for such spontaneity.
+
+Elder Goose, who had been silent until now, observing the exchange with a critical eye, chose this moment to make his presence known. He waddled forward and nudged Ana's hand with his beak, a gesture that was surprisingly gentle, almost affectionate, as if he were giving his seal of approval. Ana gasped in delight.
+
+"Oh, he's beautiful," she said, stroking the goose's soft feathers, her touch light and tender. "What's his name? And does he always try to barter for apples? I hear he has a rather discerning palate."
+
+"Elder Goose," David said, a proud smile touching his lips for the first time that day. "He's… well, he's my family. And yes, he has a rather discerning palate for fruit. And a very strong opinion on the philosophical implications of lint."
+
+"Elder Goose," Ana repeated, her voice soft, a hint of amusement in her tone. "I like that. He seems… very wise. And very opinionated. Much like someone else I know." She looked up at David, her eyes full of a warmth that made his heart ache, a warmth that promised a future he had only dared to dream of. "I hope I see you again, David. Perhaps… without the need for a bread-related transaction. Or a particularly aggressive chicken."
+
+And with that, she was gone, disappearing into the crowd as quickly as she had appeared, leaving behind a faint scent of jasmine and a lingering promise.
+
+As he and Elder Goose made their way back to their little cottage, the sun was beginning to set, painting the sky in hues of orange and purple, a breathtaking tableau of a day that had changed everything. David's heart was a confusing mix of hope and fear, a tumultuous sea of emotions. He had met the girl of his dreams, the girl who saw him, truly saw him, but she was so far out of his reach, a star in a sky he could only dream of touching, a princess in a tower he could never hope to reach.
+
+He was just David. The orphan. The boy with the goose. What could she possibly see in him? What could he possibly offer her?
+
+That evening, as he sat by the fire, sharing his bread with Elder Goose, who was now meticulously grooming his feathers, occasionally casting a critical eye at David's attempts to whistle off-key, he couldn't stop thinking about her. He replayed their conversation over and over in his mind, her smile, her voice, the way she had looked at him, the way she had laughed.
+
+"She's the mayor's daughter, Goose," he said, his voice heavy with the weight of their social differences, the insurmountable chasm that separated their worlds. "What could she possibly see in me? I'm just… me. And you. And a rather dilapidated cottage."
+
+Elder Goose, who was nibbling on a crust of bread, looked up at him, his beady black eyes surprisingly intelligent, filled with a wisdom that transcended mere avian intellect. He let out a long, low honk, a sound that was almost gentle, almost reassuring, as if to say, *You are more than you think you are, young man. And your destiny is not for them to decide. Now, about that second helping of bread…*
+
+David sighed and stared into the dancing flames, a tiny, fragile flame of hope flickering in the darkness of his uncertainty. He didn't know what the future held, what his Calling would be, or if he would ever see Ana again. But for the first time in a long time, he felt a flicker of hope. A tiny, fragile flame in the darkness of his uncertainty.
+
+And as he drifted off to sleep that night, he dreamt of a girl with hair the color of spun gold, eyes that sparkled with mischief, and a smile that could light up the world. And a very opinionated goose who occasionally offered unsolicited advice on the philosophical implications of lint.
+
+The Solstice was coming, and with it, a choice. And David, for the first time, felt ready to make it. Ready to fight for it. Ready to fight for her.
