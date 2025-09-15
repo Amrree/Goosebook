@@ -1,7 +1,5 @@
 # Chapter 1: Whispers Behind Walls
 
-## Scene 1: Ana's Golden Cage
-
 Ana's morning began, as it always did, with the relentless, almost aggressive, clinking of silver against porcelain. It was a sound that, to her, was less a symphony of domestic bliss and more a subtle, insistent clanging of gilded cage bars. Mayor Raines' dining room, a cavernous space adorned with tapestries depicting the glorious (and often exaggerated) history of Millbrook, was a monument to meticulous order and suffocating expectation. The honey-sweetened porridge, served in a bowl so fine it probably had its own lineage and a personal butler, tasted suspiciously like obligation.
 
 "My dear Ana," her father, Mayor Raines, boomed from the head of the polished oak table, his voice as smooth and practiced as a politician's handshake, capable of conveying profound concern while simultaneously calculating the optimal angle for a public appearance. He was a man who believed in order, tradition, and the strategic placement of his only daughter. "You seem… pensive this morning. A touch of nerves, perhaps, about your impending Calling? The Solstice, after all, is barely a moon away." He paused, allowing the weight of his words to settle, as if he had just delivered a profound philosophical truth rather than a statement of the obvious.
@@ -56,7 +54,6 @@ Ana felt a chill run down her spine, but she also felt something else. A strange
 
 "Yes, Father," she said quietly. "That's perfectly clear."
 
-## Scene 2: The Goose and the Glimpse
 
 Ana's escape to the market was a carefully orchestrated act of rebellion, executed with the precision of a military operation and the desperation of a prisoner planning a jailbreak. Elara, her loyal but nervous lady's maid, had been convinced (with the promise of a new silk ribbon and several reassurances that they wouldn't be caught) to help Ana slip out of the house while Mayor Raines was occupied with his morning meetings.
 
@@ -118,7 +115,6 @@ As she turned to leave, she felt Elder Goose nudge her hand with his beak, a ges
 
 Ana felt tears prick at her eyes as she walked away, but they weren't tears of sadness. They were tears of something else. Hope, perhaps. Or maybe just the relief of finally being seen for who she truly was.
 
-## Scene 3: A Reckless Plan and a Secret Rendezvous
 
 Ana's confinement to her rooms was both a punishment and a blessing. On one hand, she was trapped in her gilded cage, unable to leave, unable to see David, unable to escape her father's control. On the other hand, it gave her time to think, to plan, to dream of a different future.
 
